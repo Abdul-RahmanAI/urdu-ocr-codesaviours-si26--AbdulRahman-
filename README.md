@@ -1,1 +1,1 @@
-# urdu-ocr-codesaviours-si26--AbdulRahman-
+# Urdu OCR Project | Code Saviours SI-26 | [Abdul Rahmman]
